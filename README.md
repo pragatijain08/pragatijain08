@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pragatijain08
 - 👀 I’m interested in coading and learning every new things which improve my skills
-- 🌱 I’m currently learning Bechelor of technology in IT branch..
+- 🌱 I’m recently completed my Bechelor of technology in IT branch..
   -📫 How to reach me-- my email address---> pragatijain801@gmail.com
 
 <!---
